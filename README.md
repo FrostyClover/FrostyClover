@@ -1,4 +1,3 @@
 - I'm just here. I'm FrostyClover (although different accounts have different clovers)
-- Pronouns: She/her
 - I like to draw and I like action stuff as well as fantasy and sci-fi things
 - Meow :3
